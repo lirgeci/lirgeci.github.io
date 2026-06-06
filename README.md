@@ -1,1 +1,0 @@
-# lirgeci.github.io
